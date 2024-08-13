@@ -9,7 +9,7 @@ Meu nome é Manuela Nani
 
 
 
-### voce entrar entrar em contato comigo 📬
+### voce pode entrar em contato comigo 📬
 00001098300440sp@al.educacao.sp.gov.br
 
 Escola Jamil Gadia
